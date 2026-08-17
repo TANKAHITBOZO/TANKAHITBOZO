@@ -8,3 +8,7 @@
     <img src="https://readme-typing-svg.demolab.com?font=Protest+Revolution&pause=1000&color=C38630&center=true&vCenter=true&repeat=true&width=670&lines=%22YEAH+RIGHT+POSERS.%22;%22AND+FOR+THE+RECORD%2C+PLASTIC+SPORTS+GEARS+ISNT+REAL+ARMOUR.%22" alt="Typing SVG" />
   </a>
 </p>
+
+<div align="center">
+
+(ᴳᵁᴺ.ᴸᴼᴸ)[https://guns.lol/tankahitbozo]
