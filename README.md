@@ -11,8 +11,4 @@
 
 <div align="center">
 
-<p align="center">
-
-<a href="https://guns.lol/tankahitbozo">ᴳᵁᴺ.ᴸᴼᴸ</a>
-
-</p>
+[ᴳᵁᴺ.ᴸᴼᴸ](https://guns.lol/tankahitbozo)
