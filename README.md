@@ -11,4 +11,4 @@
 
 <div align="center">
 
-[ᴳᵁᴺ.ᴸᴼᴸ](https://guns.lol/tankahitbozo) $${{\color{#C38630}\Large{\textsf{⌯⁍\}}}}$$  [ˢᵀᴿᴬᵂᴾᴬᴳᴱ](https://tankahitbozo.straw.page/)
+[ᴳᵁᴺ.ᴸᴼᴸ](https://guns.lol/tankahitbozo) $${{\color{#C38630}\Large{\textsf{⌯⁍\}}}}$$  [ˢᵀᴿᴬᵂᴾᴬᴳᴱ](https://tankahitbozo.straw.page/)  $${{\color{#C38630}\Large{\textsf{⌯⁍\}}}}$$ [ᴬᵀᴬᴮᴼᴼᴷ](https://gayass.atabook.org/?page=1)
